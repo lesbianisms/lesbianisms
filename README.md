@@ -3,4 +3,3 @@
    ⠀⠀⠀⠀⠀꣑୧⠀⠀｡⠀⠀SOL !⠀◡ ⠀she⠀ﾉ⠀her
    ⠀⠀⠀ ⠀⠀⠀⠀꒰⠀˖⠀seasian ﹕ eng ⠀& ⠀filo ⠀OK⠀!
 ⠀⠀⠀𓈒⠀⠀˙⠀⠀⠀minor　⠀˖⠀⠀int freely　⠀˙⠀⠀꒱
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [©](https://www.tumblr.com/versay/755548753199611904/self-indulgent-kaveh-graphics?source=share)
